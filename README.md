@@ -78,10 +78,10 @@ Yes. Studies have consistently shown that removing built-up dust, mold, and debr
 How much does commercial duct cleaning cost in Oshawa?
 Cost depends on building size, number of vents, and condition of the system. BlueGuard offers free quotes for commercial properties — no commitment required.
 
-Book Your Commercial Duct Cleaning in Oshawa Today
+Book Your [Commercial Duct Cleaning in Oshawa](blueguard.ca/service-areas/commercial-air-duct-cleaning-in-oshawa/) Today
 Your employees deserve clean air. Your customers deserve a fresh, comfortable space. And your HVAC investment deserves to be protected.
 BlueGuard makes it easy. Certified technicians, flexible scheduling, honest pricing, and a process that actually works.
 Get your free commercial quote today:
-👉 blueguard.ca/service-areas/commercial-air-duct-cleaning-in-oshawa/
+👉 [blueguard.ca/service-areas/commercial-air-duct-cleaning-in-oshawa/](blueguard.ca/service-areas/commercial-air-duct-cleaning-in-oshawa/)
 📞 Call or text: 1-844-498-8364
 📧 Email: sales@blueguard.ca
